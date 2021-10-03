@@ -15,8 +15,8 @@ Kaleidoscopic view for - The Lucy Space Mission
 We are young and have prepared a Kaleidoscopic view for the Lucy Space Mission. We are assisted by our parents as we are under 13 and have been monitored so that we do not break computer or mobiles or hurt ourselves (Which we regularly!)
 
 We are three brothers from India:
-Ashar Jamal, 5+ Years
-Rayan Jamal, 2+ Years
+Mohd Ashar Jamal Faiz, 5+ Years
+Mohd Rayan Jamal Faiz, 2+ Years
 Mohd Zohan, 5+ Years
 
 We are deeply intrigued by skies and we know someday we will become astronauts.
