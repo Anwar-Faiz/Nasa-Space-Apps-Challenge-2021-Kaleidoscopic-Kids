@@ -31,7 +31,7 @@ Welcome to our Kaleidoscopic world!
 Email: Toughjamy@yahoo.com
 
 ---------------------------------------------------------------------------------------
-For detailed Video see: https://youtu.be/GzXayEPzld0
+For detailed Video see: https://youtu.be/q7UdcYwJJ1Y
 -----------------------------------------------------
 ART Work 1 - https://bit.ly/3oTsRt6
 -----------------------------------------------------
